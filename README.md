@@ -1,4 +1,4 @@
-Hi 👋 My name is Nerijus Peciulis
+Hi 👋 My name is Nerijus Pečiulis
 =================================
 
 
